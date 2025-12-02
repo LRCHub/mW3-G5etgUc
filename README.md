@@ -1,0 +1,79 @@
+# V6 – Darling
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Darling! Darling!
+いいJust night
+割り切れないshotに
+goodときてる
+Darling! Darling!
+What感eye
+イタいぐらい Fitするmind
+昨夜君がねだったのは
+アロマオイルみたいな嘘
+朝が来ればコロンで
+消して何処へ行くの?
+別に次の約束を
+してもしなくても支障ない
+充電しなきゃ動けない
+瞬間には傍にいるさ
+あてに
+ならない
+感情naviにしてdrive
+今日も
+明日も
+どうせ明後日も
+先は読めない
+Darling! Darling!
+いいJust night
+割り切れないshotに
+goodときてる
+Darling! Darling!
+What感eye
+イタいぐらい Fitするmind
+Darling! Darling!
+Knight病んで
+手探りの行為じゃpinとこない
+Darling! Darling!
+More終わんない
+ウラハラにHitしてたい
+同じ場所に何となく
+帰りたくない事情よりも
+足が向いた「現実」は
+ずっと 大事なのさ
+たどり
+着かない
+感情抜きにしてstay
+晴れか?
+雨か?
+嵐を呼ぶのも
+半分君しだい
+Darling! Darling!
+いいJust night
+割り切れないshotに
+goodときてる
+Darling! Darling!
+What感eye
+イタいぐらい Fitするmind
+Darling! Darling!
+どう?You know
+目を閉じて見なきゃ
+見えてこない
+Darling! Darling!
+意図、OK!
+アイマイにHotしてたい
+Darling! Darling!
+いいJust night
+割り切れないshotに
+goodときてる
+Darling! Darling!
+What感eye
+イタいぐらい Fitするmind
+Darling! Darling!
+Knight病んで
+手探りの行為じゃpinとこない
+Darling! Darling!
+More終わんない
+ウラハラにHitしてたい
+```
